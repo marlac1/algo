@@ -1,1 +1,1 @@
-Ask me for that technical tests instructions
+Ask me for these technical tests instructions
